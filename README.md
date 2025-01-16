@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **hamzahashim515515@gmail.com**
 
-- ⚡ Fun fact **I am poetic 🖊️**
+- ⚡ Fun fact **95% of hacks are human errors!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
